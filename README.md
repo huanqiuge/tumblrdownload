@@ -7,7 +7,7 @@ tumblr-crawler
 ## 怎么样方便地讨论交流
 
 * 加我的微信：Lulankan
-* 或者发私信给我的小草：Beginning
+* 或者发私信给我的小草：Beginner
 
 
 如果需要添加新的站点，可以私信给我。
